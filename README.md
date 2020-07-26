@@ -1,6 +1,9 @@
 # how-to-write-resume
 How to write an attractive resume
 
+## Different kinds of Resume
+1. Functional resume - https://zety.com/blog/functional-resume
+
 ## Common things to remember
 1. Action words - https://zety.com/blog/resume-action-words
 
