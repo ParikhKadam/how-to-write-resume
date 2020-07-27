@@ -13,3 +13,8 @@ How to write an attractive resume
 
 ## How to write a resume
 1. Career change resume - https://zety.com/blog/career-change-resume
+2. Past or Present tense - https://www.indeed.com/career-advice/resumes-cover-letters/resume-past-or-present-tense
+
+## Job Application Email
+1  How to write job application email - https://www.cleverism.com/7-email-templates-for-next-job-application/
+2. How to write job application email - https://www.indeed.com/career-advice/resumes-cover-letters/e-mail-application
